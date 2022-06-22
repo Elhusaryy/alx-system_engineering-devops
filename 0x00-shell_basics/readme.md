@@ -1,1 +1,1 @@
-4. Hidden files
+3. The long format
